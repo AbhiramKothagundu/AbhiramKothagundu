@@ -2,15 +2,14 @@ I am driven by a profound interest in unraveling the intricacies of computer sys
 
 ---
 
-## Social Profiles
+Social Profiles
 
 - [LinkedIn](https://www.linkedin.com/in/abhiram-kothagundu)
 - [CodeForces](https://codeforces.com/profile/abhiramkothagundu)
 
 ---
 
-## Hobbies
+Hobbies
 
 Gaming • Art • Fiction Books
 
----
